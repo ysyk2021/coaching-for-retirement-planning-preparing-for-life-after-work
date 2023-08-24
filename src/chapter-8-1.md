@@ -1,5 +1,3 @@
-Metrics for Measuring Retirement Planning Effectiveness
-==============================================================================================================================
 
 Retirement planning is an ongoing process that requires regular evaluation and adjustment. In this chapter, we'll explore metrics for measuring retirement planning effectiveness.
 

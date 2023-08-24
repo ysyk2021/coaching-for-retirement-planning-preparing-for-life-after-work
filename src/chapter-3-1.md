@@ -1,5 +1,3 @@
-Techniques for Understanding the Science of Coaching
-======================================================================================================
 
 Coaching is a powerful tool for retirement planning, but understanding the science of coaching can help individuals and coaches maximize its effectiveness. In this chapter, we will explore techniques for understanding the science of coaching.
 

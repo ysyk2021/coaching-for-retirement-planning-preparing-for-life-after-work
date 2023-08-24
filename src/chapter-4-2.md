@@ -1,5 +1,3 @@
-Identifying Retirement Goals and Objectives
-=================================================================================================
 
 Developing a retirement plan is a critical step towards achieving a fulfilling and comfortable retirement. One effective way to develop a retirement plan is by working with a coach. Here are some techniques for identifying retirement goals and objectives with a coach:
 

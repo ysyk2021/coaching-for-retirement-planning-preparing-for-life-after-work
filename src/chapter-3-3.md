@@ -1,5 +1,3 @@
-The Relationship Between Coaching and Goal Achievement
-========================================================================================================
 
 Coaching is an effective tool for achieving personal and professional goals, including retirement planning. In this chapter, we will explore the science of coaching and the relationship between coaching and goal achievement.
 

@@ -1,5 +1,3 @@
-Techniques for Preparing for Health and Wellness in Retirement
-==========================================================================================================================
 
 Maintaining good physical and mental health is important for a fulfilling post-work life. In this chapter, we will explore techniques for preparing for health and wellness in retirement.
 

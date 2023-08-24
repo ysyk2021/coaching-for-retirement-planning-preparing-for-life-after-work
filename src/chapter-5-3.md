@@ -1,5 +1,3 @@
-Minimizing Debt and Maximizing Income
-==========================================================================================
 
 Managing personal finances is an essential component of retirement planning. In this chapter, we'll explore strategies for minimizing debt and maximizing income in retirement.
 

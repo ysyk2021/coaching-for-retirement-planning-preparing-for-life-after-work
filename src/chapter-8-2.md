@@ -1,5 +1,3 @@
-Evaluating Individual and Organizational Performance
-===========================================================================================================================
 
 Evaluating individual and organizational performance is essential for measuring the effectiveness of retirement planning efforts. In this chapter, we will explore techniques for evaluating individual and organizational performance in retirement planning.
 

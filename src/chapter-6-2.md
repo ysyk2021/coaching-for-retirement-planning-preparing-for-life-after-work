@@ -1,5 +1,3 @@
-Maintaining Physical and Mental Health
-==================================================================================================
 
 Maintaining physical and mental health is essential for a fulfilling post-work life. In this chapter, we will explore techniques for preparing for health and wellness in retirement.
 

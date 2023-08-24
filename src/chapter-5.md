@@ -1,5 +1,3 @@
-Chapter 5: Managing Personal Finances in Retirement
-===================================================
 
 Managing personal finances in retirement can be a challenging task. In this chapter, we will explore techniques for managing personal finances, including budgeting and saving strategies, and minimizing debt while maximizing income.
 

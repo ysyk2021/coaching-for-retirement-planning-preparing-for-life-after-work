@@ -1,5 +1,3 @@
-Chapter 9: Ethical Considerations in Retirement Coaching
-========================================================
 
 Retirement coaching involves handling sensitive personal and financial information, which requires careful attention to ethical considerations. In this chapter, we will explore techniques for addressing ethical considerations in retirement coaching, including respecting client confidentiality and privacy, avoiding conflicts of interest, and adhering to professional standards and codes of ethics.
 
@@ -41,5 +39,4 @@ Conclusion
 ----------
 
 Ethical considerations are an important aspect of retirement coaching. By respecting client confidentiality and privacy, avoiding conflicts of interest, adhering to professional standards and codes of ethics, and encouraging clients to seek additional advice when necessary, coaches can effectively address ethical considerations and provide valuable support to individuals preparing for retirement.
-
 

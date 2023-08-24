@@ -1,5 +1,3 @@
-Chapter 4: Developing a Retirement Plan with a Coach
-====================================================
 
 Developing a retirement plan can be a complex process, but working with a coach can help individuals create a comprehensive and effective plan. In this chapter, we will explore techniques for developing a retirement plan with a coach, including identifying retirement goals and objectives, and creating a comprehensive retirement plan.
 
@@ -38,5 +36,4 @@ Conclusion
 ----------
 
 By working with a coach to develop a retirement plan, individuals can more effectively prepare for life after work. By identifying retirement goals and objectives, creating a comprehensive retirement plan that includes a retirement savings plan and a retirement income plan, and evaluating the effectiveness of the plan over time, retirees can enjoy a fulfilling and financially secure post-work life.
-
 

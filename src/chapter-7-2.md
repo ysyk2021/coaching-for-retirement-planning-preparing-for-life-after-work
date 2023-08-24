@@ -1,5 +1,3 @@
-Coping with Loss and Change
-=======================================================================================================
 
 Retirement can bring about a range of emotional and psychological challenges, including coping with loss and change. In this chapter, we'll explore techniques for addressing loss and change in retirement.
 

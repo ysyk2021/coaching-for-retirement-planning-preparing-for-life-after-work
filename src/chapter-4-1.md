@@ -1,5 +1,3 @@
-Techniques for Developing a Retirement Plan with a Coach
-==============================================================================================================
 
 Retirement planning can be a complex and overwhelming process, but working with a coach can make it more manageable and effective. In this chapter, we'll explore techniques for developing a retirement plan with a coach.
 

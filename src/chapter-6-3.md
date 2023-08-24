@@ -1,5 +1,3 @@
-Creating a Supportive Social Network
-================================================================================================
 
 Preparing for health and wellness is an important aspect of retirement planning. In this chapter, we'll explore the importance of creating a supportive social network in retirement.
 

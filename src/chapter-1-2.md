@@ -1,5 +1,3 @@
-The Benefits and Challenges of Retirement Planning
-===========================================================================
 
 Retirement planning is a complex process that requires careful consideration and attention to detail. In this chapter, we will explore the benefits and challenges of retirement planning.
 

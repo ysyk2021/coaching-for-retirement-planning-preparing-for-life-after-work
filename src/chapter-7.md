@@ -1,5 +1,3 @@
-Chapter 7: Addressing Emotional and Psychological Challenges in Retirement
-==========================================================================
 
 Retirement can bring about a range of emotional and psychological challenges, including coping with loss and change, finding meaning and purpose, and maintaining social connections. In this chapter, we'll explore techniques for addressing emotional and psychological challenges in retirement.
 

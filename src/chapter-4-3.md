@@ -1,5 +1,3 @@
-Creating a Comprehensive Retirement Plan
-==============================================================================================
 
 Retirement planning can be a complex process, and working with a coach can help individuals develop a comprehensive retirement plan. In this chapter, we will explore the process of developing a retirement plan with a coach.
 

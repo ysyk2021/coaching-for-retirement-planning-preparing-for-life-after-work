@@ -1,5 +1,3 @@
-Avoiding Conflicts of Interest
-========================================================================================
 
 Retirement coaching involves providing guidance and support to clients as they plan for life after work. However, ethical considerations must be taken into account to ensure that coaches are acting in their clients' best interests. In this chapter, we'll explore ethical considerations in retirement coaching, with a particular focus on avoiding conflicts of interest.
 

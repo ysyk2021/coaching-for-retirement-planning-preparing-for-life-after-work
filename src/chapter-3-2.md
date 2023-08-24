@@ -1,5 +1,3 @@
-Different Coaching Styles and Approaches
-==========================================================================================
 
 Coaching is a powerful tool for retirement planning, but there are many different coaching styles and approaches that coaches can use to help individuals achieve their goals. In this chapter, we will explore some of the different coaching styles and approaches used in retirement planning.
 

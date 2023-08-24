@@ -1,5 +1,3 @@
-Finding Meaning and Purpose in Retirement
-=====================================================================================================================
 
 Retirement can be a major life transition that comes with emotional and psychological challenges. In this chapter, we will explore how to address these challenges by finding meaning and purpose in retirement.
 

@@ -1,5 +1,3 @@
-Techniques for Addressing Ethical Considerations
-==========================================================================================================
 
 Retirement coaching is a powerful tool for individuals preparing for retirement, but it also comes with ethical considerations. In this chapter, we will explore ethical considerations in retirement coaching and provide techniques for addressing these considerations.
 

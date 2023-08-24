@@ -1,5 +1,3 @@
-Chapter 6: Preparing for Health and Wellness in Retirement
-==========================================================
 
 Preparing for health and wellness is an essential component of retirement planning. In this chapter, we'll explore techniques for preparing for health and wellness in retirement, maintaining physical and mental health, and creating a supportive social network.
 
@@ -44,5 +42,4 @@ Conclusion
 ----------
 
 Preparing for health and wellness is an essential component of retirement planning. By incorporating techniques such as planning for healthcare expenses, creating a healthy living environment, staying active and mentally engaged, and creating a supportive social network, individuals can enjoy a comfortable and fulfilling retirement that prioritizes physical and mental health.
-
 

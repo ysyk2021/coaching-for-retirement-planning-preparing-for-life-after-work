@@ -1,5 +1,3 @@
-Respecting Client Confidentiality and Privacy
-=======================================================================================================
 
 Client confidentiality and privacy are important ethical considerations in retirement coaching. In this chapter, we will explore the importance of client confidentiality and privacy, as well as techniques for respecting these principles.
 

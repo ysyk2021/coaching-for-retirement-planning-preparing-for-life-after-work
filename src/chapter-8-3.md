@@ -1,5 +1,3 @@
-Continuous Improvement in Retirement Planning Practices
-==============================================================================================================================
 
 Measuring and evaluating retirement planning effectiveness is essential for continuous improvement in retirement planning practices. In this chapter, we will explore techniques for measuring and evaluating retirement planning effectiveness and how to use this information to improve retirement planning practices.
 
