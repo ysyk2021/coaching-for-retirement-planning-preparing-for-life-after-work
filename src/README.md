@@ -16,3 +16,7 @@ In this book, we'll explore the benefits of coaching for retirement planning and
 Throughout this book, we'll emphasize the importance of personalized guidance and support when it comes to retirement planning. With the right coaching and preparation, you can achieve a secure and fulfilling retirement that reflects your unique needs and goals. Whether you're just starting to think about retirement or already preparing for this next chapter in your life, this book provides valuable insights and practical tips to help you prepare for the road ahead.
 
 MingHai Zheng is the founder of zhengpublishing.com and lives in Wuhan, China. His main publishing areas are business, management, self-help, computers and other emerging foreword fields.
+
+Please Buy Me a Coffee to support us if you think this book is valuable to you. click this link:
+
+https://www.buymeacoffee.com/minghaizheng
