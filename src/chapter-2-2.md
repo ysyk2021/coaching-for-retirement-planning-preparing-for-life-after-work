@@ -1,5 +1,4 @@
-Chapter: The Impact of Retirement on Personal Finances and Lifestyle
-====================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the significant impact that retirement has on personal finances and lifestyle. Understanding how retirement affects your financial situation and lifestyle choices is crucial for effective retirement planning and ensuring a fulfilling post-work life.
 
